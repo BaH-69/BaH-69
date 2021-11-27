@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Amine..
+- 👁‍🗨 I’m interested in IT in general 
+- 🌱 I’m currently learning pyhton
+- 📫 Discord : Snoopy#7629
